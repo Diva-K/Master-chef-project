@@ -1,0 +1,1 @@
+between the 2 bread slices put all the other ingredients in between and grill it if you want
